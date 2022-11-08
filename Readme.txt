@@ -1,3 +1,4 @@
+Autores originales:
 Thanks for downloading this template!
 
 Template Name: Restaurantly
